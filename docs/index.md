@@ -1,8 +1,8 @@
-# SomethingUnseen
+# SomethingUnseenLTD
 
-### SomethingUnseenMobile Privacy Policy
+### SomethingUnseen Mobile Privacy Policy
 
-SomethingUnseenMobile will never share your information with any company, agency or entity outside of SomethingUnseen LTD for any reason. 
+SomethingUnseen Mobile will never share your information with any company, agency or entity outside of SomethingUnseen LTD for any reason. 
 
 
 Your email address, Name and Phone Number are only used for internal promotional and marketing campaigns. Marketing Campaigns such as NewLetters, Policy Changes or Supporter Appreciation Raffles. 
