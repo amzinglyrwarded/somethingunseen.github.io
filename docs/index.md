@@ -1,5 +1,9 @@
 # SomethingUnseenLTD
 
+
+![SomethingUnseen](https://github.com/amzinglyrwarded/somethingunseen.github.io/blob/master/somethingunseen-dark-logo.jpg)
+
+
 ### SomethingUnseen Mobile Privacy Policy
 
 SomethingUnseen Mobile will never share your information with any company, agency or entity outside of SomethingUnseen LTD for any reason. 
