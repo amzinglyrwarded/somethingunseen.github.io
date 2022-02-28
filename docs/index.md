@@ -23,3 +23,9 @@ Your email address, Name and Phone Number are only used for internal promotional
 [Download App-Android](https://github.com/amzinglyrwarded/somethingunseen.github.io/blob/master/cricketwater_1.5_official.apk)
 
 [Google Play Link](https://play.google.com/store/apps/details?id=com.somethingunseen.amzinglyrwarded.somethingunseenmobile)
+
+[Twitch Channel](https://www.twitch.tv/amzinglyrwarded_217)
+
+[Something Unseen Website](https://www.somethingunseenltd.com)
+
+[Youtube](https://www.youtube.com/channel/UCuZ6l8r4UDwlT4GqNeNJgQw)
