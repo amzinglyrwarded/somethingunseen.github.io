@@ -20,8 +20,6 @@ Your email address, Name and Phone Number are only used for internal promotional
 >"**In America** You're already free, now act like it."
 > \- Michael Render
 
-[Download App-Android](https://github.com/amzinglyrwarded/somethingunseen.github.io/blob/master/cricketwater_1.5_official.apk)
-
 [Google Play Link](https://play.google.com/store/apps/details?id=com.somethingunseen.amzinglyrwarded.somethingunseenmobile)
 
 [Twitch Channel](https://www.twitch.tv/amzinglyrwarded_217)
