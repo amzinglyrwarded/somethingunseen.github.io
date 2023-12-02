@@ -1,4 +1,4 @@
-# SomethingUnseenLTD
+# Something Unseen LLC
 
 ![SomethingUnseen](https://github.com/amzinglyrwarded/somethingunseen.github.io/blob/master/somethingunseen-dark-logo.jpg)
 
