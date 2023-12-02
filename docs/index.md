@@ -27,3 +27,5 @@ Your email address, Name and Phone Number are only used for internal promotional
 [Something Unseen Website](https://www.somethingunseenltd.com)
 
 [Youtube](https://www.youtube.com/channel/UCuZ6l8r4UDwlT4GqNeNJgQw)
+
+[Remove User Account from Something Unseen App](https://forms.gle/VxB1Rci4yChnZXsf7)
